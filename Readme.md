@@ -1,4 +1,4 @@
-www.paladins-inn.de
+www.core-earth-news.de
 ====
 
-Die Webseite von Roland Lichti
+Die Webseite von FraZ
